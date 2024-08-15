@@ -1,4 +1,4 @@
-#             𝐕𝐈𝐍𝐂𝐄-𝐌𝐃 𝐕𝐄𝐑𝐒𝐈𝐎𝐍 0.1
+#             𝐕𝐈𝐍𝐂𝐄-𝐌𝐃 𝐕𝐄𝐑𝐒𝐈𝐎𝐍 0.
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center">
 <p align="center">
