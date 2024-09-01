@@ -1,4 +1,4 @@
-#             𝐕𝐈𝐍𝐂𝐄-𝐌𝐃 𝐕𝐄𝐑𝐒𝐈𝐎𝐍 0.1
+#            FREE ROYAL-𝐌𝐃 𝐕𝐄𝐑𝐒𝐈𝐎𝐍 0.1
    <a><img src='https://i.imgur.com/LyHic3i.gif'/></a><a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
 <p align="center">
 <p align="center">
@@ -82,9 +82,9 @@
 
     
 
-<a href="https://wa.me/2348127663211"><img src="https://img.shields.io/badge/CONTACT VINCE_X-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://wa.me/2349035251566"><img src="https://img.shields.io/badge/CONTACT VINCE_X-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 
  <br> 
 <p align="center">
-<a href="https://wa.me/2348127663211"><img src="https://img.shields.io/badge/DEVELOPER CONTACT-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
+<a href="https://wa.me/2349035251566"><img src="https://img.shields.io/badge/DEVELOPER CONTACT-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
 <a href="https://whatsapp.com/channel/0029VaBzrPq2ZjCguPbXkz07"><img src="https://img.shields.io/badge/Our Whatsapp Channel-25D366?style=for-the-badge&logo=whatsapp&logoColor=white" />
